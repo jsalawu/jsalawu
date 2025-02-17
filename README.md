@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hello! I can provide access to repositories upon request.
 
 <!--
 **jsalawu/jsalawu** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
